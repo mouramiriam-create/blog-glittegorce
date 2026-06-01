@@ -1,2 +1,3 @@
-# blog-glittegorce
+# blog-glitteforce
 a formação do grupo
+>.<
